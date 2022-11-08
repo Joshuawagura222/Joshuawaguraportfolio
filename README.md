@@ -1,2 +1,0 @@
-# Joshuawaguraportfolio
-My personal Portfolio
